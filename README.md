@@ -1,0 +1,1 @@
+# cleoperdia-sotuv-dasturi
